@@ -42,4 +42,7 @@
    ```
 5. Нажмите `o + Enter`
 
+## Ссылка на обзор
+[Видеообзор на Rutube](https://rutube.ru/video/private/919170a7981133599c66aef043cd71d3/?p=gmyxwX3-W4-2XzqhkQsiXQ)
+
 ***Удачи!***
